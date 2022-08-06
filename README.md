@@ -4,5 +4,5 @@
 
 _Estou finalizando HEHEHE_
 
-_2022 by AshcroftGamer._
+2022 _by AshcroftGamer_.
 
